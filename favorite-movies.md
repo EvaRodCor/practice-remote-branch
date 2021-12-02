@@ -1,3 +1,3 @@
 # Eva's Favorite Movies
-- Black Panter 
+- Black Panther 
 - Titanic
